@@ -1,2 +1,0 @@
-# The-Coinpublic-Share
- Coin
